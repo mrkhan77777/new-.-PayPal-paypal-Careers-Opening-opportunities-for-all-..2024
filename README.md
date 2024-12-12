@@ -27,7 +27,7 @@ Shop with your PayPal balance everywhere Mastercard® is accepted.
 
 Earn 5% cash back on a category you choose each month*
 
-*5% cash back earned as points you redeem for cash & other options on up to $1000 spend/month. Terms apply: http://paypal.com/rewardspal.
+*5% cash back earned as points you redeem for cash & other options on up to $1000 spend/month. Terms apply
 
 A PayPal balance account is required to get the card.
 
