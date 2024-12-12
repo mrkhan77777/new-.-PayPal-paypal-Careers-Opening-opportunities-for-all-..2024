@@ -31,7 +31,7 @@ Earn 5% cash back on a category you choose each month*
 
 A PayPal balance account is required to get the card.
 
-The PayPal Debit Mastercard® is issued by The Bancorp Bank N.A. (“Bancorp”), pursuant to a license by Mastercard International Incorporated and may be used everywhere Mastercard is accepted. Mastercard and the circles design are registered trademarks of Mastercard International Incorporated. Bancorp is issuer of the Card only and not responsible for the associated accounts or other products, services, or offers from PayPal. PayPal is a financial technology company, not a bank. The Card is linked to your PayPal Balance account. See PayPal Balance Terms and Conditions: https://www.paypal.com/us/legalhub/pp-balance-tnc#holding
+The PayPal Debit Mastercard® is issued by The Bancorp Bank N.A. (“Bancorp”), pursuant to a license by Mastercard International Incorporated and may be used everywhere Mastercard is accepted. Mastercard and the circles design are registered trademarks of Mastercard International Incorporated. Bancorp is issuer of the Card only and not responsible for the associated accounts or other products, services, or offers from PayPal. PayPal is a financial technology company, not a bank. The Card is linked to your PayPal Balance account. See PayPal Balance Terms and Conditions:
 
 GROW YOUR MONEY WITH HIGH-YIELD PAYPAL SAVINGS
 
